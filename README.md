@@ -1,0 +1,7 @@
+![Figure_2](https://github.com/user-attachments/assets/a63f9c1a-6d18-4a13-9962-05e74f0cdf03)
+![Figure_1](https://github.com/user-attachments/assets/5cf57db3-178f-4604-8db1-f740c803cee5)
+![Ekran görüntüsü 2024-07-19 085732](https://github.com/user-attachments/assets/8de369e0-695b-4288-aea9-8666afa7d8b9)
+![Ekran görüntüsü 2024-07-19 084448](https://github.com/user-attachments/assets/a32baeba-a4a2-4eeb-8516-8afb59972a84)
+![Figure_cam](https://github.com/user-attachments/assets/981cbae3-927d-48c6-a094-7166323f9196)
+![Figure_4](https://github.com/user-attachments/assets/925aa900-276b-4cb2-b090-4926ec2edac4)
+![Figure_3](https://github.com/user-attachments/assets/e21fb7c9-1b35-495c-8f3a-6ba227079806)
