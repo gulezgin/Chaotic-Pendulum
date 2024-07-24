@@ -17,3 +17,5 @@
 ![Figure_222](https://github.com/user-attachments/assets/c9146e05-bac6-4295-a6eb-cfb53b31b45c)
 ![Figure_111](https://github.com/user-attachments/assets/6c191eb2-dab0-4481-b53a-935f957a529e)
 ![Figure_42](https://github.com/user-attachments/assets/fd751506-2ed6-4ac2-83db-5070e146d15f)
+![Ekran görüntüsü 2024-07-23 172336](https://github.com/user-attachments/assets/7084bdc5-9c92-4df5-809f-cc04d4091e40)
+![Ekran görüntüsü 2024-07-23 122522](https://github.com/user-attachments/assets/41698396-8c07-4a89-9b03-d9fe023e5520)
